@@ -1,7 +1,7 @@
 ## All About Cats 
 **Why Cats Are So Charming**
 
-* Improves monkey kitten babies chances of daily snuggle
+* Improves monkey kitten chances of daily snuggle
 * Contributes to sense of well being
 
 Cats are so *amazing*. Cats are far superior to dogs. Clearly.
